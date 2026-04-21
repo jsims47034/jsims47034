@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jsims47034
 - 🌱 I do things, mostly nerd things.
-- 📫Curious about my Custom PC or Coding Projects? reach me at jsims47034@gmail.com!
+- 📫Most of my projects are private but if your curious about my Custom PC's or Coding Projects, reach me at jsims47034@gmail.com!
 - 😄 Pronouns: he/him
 - cya!
 <!---
